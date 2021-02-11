@@ -3,6 +3,6 @@
 Jack Flaherty<br>
 Jaylee Chase<br>
 Chandler Phillips<br>
-Suyogya Poudel<br>
 Veda Jammula<br>
+Suyogya Poudel<br>
 Sam Williamson
